@@ -1,0 +1,1 @@
+# ishigaki-travel-map
